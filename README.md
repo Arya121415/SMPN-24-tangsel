@@ -1,0 +1,1 @@
+# SMPN-24-tangsel
